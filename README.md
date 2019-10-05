@@ -1,1 +1,0 @@
-# implikasi-fuzzy
